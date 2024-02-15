@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @domo7942
+- 👀 I’m interested in guntam
+- 🌱 I’m currently learning code
+- 😄 Pronouns: any
+- ⚡ Fun fact: i likr cats
